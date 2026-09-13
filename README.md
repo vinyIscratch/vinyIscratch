@@ -1,3 +1,6 @@
-<img width="1152" height="648" alt="1000028935" src="https://github.com/user-attachments/assets/dee4556d-9409-4be2-9cb6-3cd818b5441d" />
+![](https://github.com/user-attachments/assets/b318b5c5-78d8-4454-8aa9-6a20d20ba632) 
+![](https://github.com/user-attachments/assets/4801a63a-5a03-417e-830d-770a22cdb174) 
+![](https://github.com/user-attachments/assets/825f1a17-fc27-46dc-a9a9-a7fdd70ec9f6) 
+![](https://github.com/user-attachments/assets/677b8203-e5ca-4689-bb9e-2e6844606141) 
+![](https://github.com/user-attachments/assets/ee2a89dd-35bf-4876-8751-99d734b989f8) 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Elsie&duration=7000&color=402476&width=435&lines=Still+tinged+with+these+blue+eyes%2C;as+being+an+unknown+shade+of+color%2C;If+it+was+you%2C+you%E2%80%99d+remember;the+crimson+sky+that+you+earnestly+hid)](https://git.io/typing-svg)
